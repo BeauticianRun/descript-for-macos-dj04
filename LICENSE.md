@@ -1,4 +1,4 @@
-# 
+# Descript for macOS vip Script: AI-upscaling & compressor is the best Descript for macOS script, featuring AI-upscaling and compressor. Safe, efficient, and optimized for video
 
 
 
